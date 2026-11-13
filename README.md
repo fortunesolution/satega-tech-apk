@@ -1,0 +1,1 @@
+# satega-tech-apk
